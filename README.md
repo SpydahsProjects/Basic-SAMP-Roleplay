@@ -12,5 +12,5 @@ Made by Spydah / Haribo Inc
 
 
 
-It's based in El Quabrados
+It's based in El Quabrados, Las Venturas
 
